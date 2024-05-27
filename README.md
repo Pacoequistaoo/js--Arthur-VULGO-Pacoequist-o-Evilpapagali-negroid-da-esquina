@@ -1,1 +1,1 @@
-# js--Arthur-VULGO-Pacoequist-o-Evilpapagali-negroid-da-esquina
+# js-Arthur-VULGO-Pacoequistao-o-Evilpapagali-negroid-da-esquina
